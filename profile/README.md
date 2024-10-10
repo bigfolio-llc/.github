@@ -23,7 +23,7 @@ Our proficiency in crafting custom themes and developing online stores has led t
 
 ### Do you create custom Shopify Apps?
 
-Yes, we do. Check out our published Shopify Apps: https://apps.shopify.com/partners/chazify-apps
+Yes, we do. Email us to see our portfolio.
 
 ### Do you create SaaS Products?
 
