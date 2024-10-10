@@ -4,7 +4,6 @@ Bigfolio specializes in assisting Enterprise Shopify Plus Merchants with a wide 
 
 Our proficiency in crafting custom themes and developing online stores has led to remarkable success stories for our clients, with a combined revenue exceeding $1.2 billion. Count on us to infuse vibrancy and success into your upcoming project.
 
-<br>
 
 ### Our expertise spans a wide range of advanced technologies and platforms, including:
 
